@@ -1,1 +1,0 @@
-# oops-pratical-sheet-2
